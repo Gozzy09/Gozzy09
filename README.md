@@ -1,6 +1,5 @@
-- 👋 Hi, I’m @Gozzy09
+- 👋 Hi, I’m @BigVibes
 - 👀 I’m interested in here
-- 🌱 I’m currently learning Hacking Facebook Instagram and Wallet 
 - 💞️ I’m looking to collaborate on anyone avat
 - 📫 How to reach me .
 
